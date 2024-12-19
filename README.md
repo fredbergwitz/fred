@@ -1,3 +1,10 @@
-This seems pretty depressing, so look at fredbergwitz.com instead!
+This seems pretty depressing, most of my projects are private...
 
-Most of my projects are private but I plan to make some radical changes...
+    /\_____/\
+   /  o   o  \
+  ( ==  ^  == )
+   )         (
+  (           )
+ ( (  )   (  ) )
+(__(__)___(__)__)
+
